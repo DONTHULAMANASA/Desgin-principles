@@ -1,1 +1,1 @@
-# tejanjani14
+# manasa desgin principles
